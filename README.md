@@ -14,9 +14,6 @@ Ingredients for cream frosting:
 1 pound of cream cheese (softened), 4 cups of sifted confectioners' sugar, 2 sticks of unsalted butter (softened), and finally 1 teaspoon of vanilla extract.
 _________________________________________________________________________________________________________________________________________________________________________________
 
-
-
-This recipe is for a red velvet cake:
 1: Preheat the oven to 350 degrees F. Lightly oil and flour three 9 by 1 1/2-inch round cake pans.
 
 2: In a large bowl, sift together the flour, sugar, baking soda, salt, and cocoa powder. In another large bowl, whisk together the oil, buttermilk, eggs, food coloring, vinegar, and vanilla.
